@@ -1,1 +1,3 @@
-# PROYECT-2
+# PROYECT-
+### SOLICITUD A PERPLEXITY
+necesito que explores intensamente en la cuidad de posadas, misiones, ciudad fronteriza, a las dificultades que se presenten en los alumnos de la secundaria diurna, escolar y problemas como faltar a clases, repitencias, desorción escolar, esta correlacionada con el mal uso de la tecnología, esto es adiccion como enfermedad a la tecnologia, pero ademas se vuelven agnósticos, por ser demasiado ideonistas, a esto el no tener un futuro poco creible se reatren al consumo de drogas. Además, el contexto de la pobreza, la falta de recursos y acceso a un mejor bienestar para su educación, son excluidos por sus pares y en general por la comunidad.
